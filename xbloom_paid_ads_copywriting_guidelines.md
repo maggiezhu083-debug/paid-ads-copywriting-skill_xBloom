@@ -1,4 +1,4 @@
-# xBloom Paid Ads Copywriting Guidelines123
+# xBloom Paid Ads Copywriting Guidelines
 
 **Scope:** Paid advertising copy for xBloom across Meta, Instagram, TikTok, YouTube, display, and other paid social placements.
 
